@@ -1,8 +1,8 @@
 　　 　　　 　　　 　 　　![](https://i.postimg.cc/3xVDZtJ8/tumblr-c80fa71669ef373d855f007b403ca31e-8336ddca-1280-removebg-preview.png)　　
 
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　 said I look mad, she said I look wasted
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　 I am gross and perverted, i'm obsessed and deranged
                              
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　charlotte　　　――　　　[grace](https://pronouns.cc/@phm)
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　[charlotte](https://pronouns.cc/@phm)　　　――　　　grace
 
 　　 　　　 　　　 　　　 　　　 　　　 　　　 　　cudcomf　　　🚀　　　shehe
 
