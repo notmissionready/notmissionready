@@ -6,4 +6,4 @@
 
 　　 　　　 　　　 　　　 　　　 　　　 　　　 　　or [thomas](https://pronouns.cc/@phm)　　　🚀　　　shehe
 
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　no ttgs　　　mentally ill　　　 [୨୧](https://fluffle.cc/moonbow)
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　no ttgs　　　mentally ill　　　 [୨୧](https://rentry.co/spacemiracle)
