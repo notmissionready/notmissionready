@@ -3,6 +3,6 @@
 
 　　 　　　 　　　 　　　 　　　 　　　 　　　 　　charlotte　　　――　　　grace
                              
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　or ryland　　　🚀　　　shehe
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　or [ryland]()　　　🚀　　　shehe
                              
-　 　　　 　　　 　　　 　　　 　　　 　　　 　　aroace taken　　 　　system
+　 　　　 　　　 　　　 　　　 　　　 　　　 　　 aroace taken　　 　　system
