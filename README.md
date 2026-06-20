@@ -5,4 +5,4 @@
 
 　　 　　　 　　　 　　　 　　　 　　　 　　　 　　or [ryland](https://pronouns.cc/@phm)　　　🚀　　　shehe
 
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　no ttgs　　　neurodivergent　　　sys
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　no ttgs　　　mentally ill
