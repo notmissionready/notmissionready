@@ -4,6 +4,6 @@
                              
 　　 　　　 　　　 　　　 　　　 　　　 　　　 　　charlotte　　　――　　　grace
 
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　or [ryland](https://pronouns.cc/@phm)　　　🚀　　　shehe
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　or [thomas](https://pronouns.cc/@phm)　　　🚀　　　shehe
 
 　　 　　　 　　　 　　　 　　　 　　　 　　　 　　no ttgs　　　mentally ill　　　 [୨୧](https://fluffle.cc/moonbow)
