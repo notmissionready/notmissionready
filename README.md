@@ -2,8 +2,8 @@
 
 　　 　　　 　　　 　　　 　　　 　　　 　　　 said I look mad, she said I look wasted
                              
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　charlotte　　　――　　　grace
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　charlotte　　　――　　　[grace](https://pronouns.cc/@phm)
 
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　or [thomas](https://pronouns.cc/@phm)　　　🚀　　　shehe
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　cudcomf　　　🚀　　　shehe
 
 　　 　　　 　　　 　　　 　　　 　　　 　　　 　　no ttgs　　　mentally ill　　　 [୨୧](https://savestars.carrd.co)
