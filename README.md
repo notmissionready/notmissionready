@@ -1,6 +1,6 @@
 　　 　　　 　　　 　　　 　　　![](https://i.postimg.cc/3xVDZtJ8/tumblr-c80fa71669ef373d855f007b403ca31e-8336ddca-1280-removebg-preview.png)　　
 
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　said I look mad, she said I look wasted
+　　 　　　 　　　 　　　 　　　 　　　 　　　 said I look mad, she said I look wasted
                              
 　　 　　　 　　　 　　　 　　　 　　　 　　　 　　charlotte　　　――　　　grace
 
