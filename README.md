@@ -5,4 +5,4 @@
 
 　　 　　　 　　　 　　　 　　　 　　　 　　　 　　or [ryland](https://pronouns.cc/@phm)　　　🚀　　　shehe
 
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　no ttgs　　　mentally ill
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　no ttgs　　　mentally ill　　　 ୨୧
