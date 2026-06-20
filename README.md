@@ -3,6 +3,6 @@
 
 　　 　　　 　　　 　　　 　　　 　　　 　　　 　　charlotte　　　――　　　grace
 
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　or [ryland]()　　　🚀　　　shehe
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　or [ryland](https://pronouns.cc/@phm)　　　🚀　　　shehe
 
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　nameflux　　　aroace　　　taken
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　no ttgs　　　neurodivergent　　　sys
