@@ -6,4 +6,4 @@
 
 　　 　　　 　　　 　　　 　　　 　　　 　　　 　　or [ryland](https://pronouns.cc/@phm)　　　🚀　　　shehe
 
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　no ttgs　　　mentally ill　　　 ୨୧
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　no ttgs　　　mentally ill　　　 [୨୧](https://fluffle.cc/moonbow)
